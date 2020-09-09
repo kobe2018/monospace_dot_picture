@@ -1,1 +1,0 @@
-# monospace_dot_picture
